@@ -1,0 +1,1 @@
+# newstandard.edu.np
